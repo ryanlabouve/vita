@@ -4,7 +4,17 @@ Your body is a tool. Maintain it and keep it sharp. Expect a few dings along the
 
 ## In 500 Words
 
-// TODO
+This body is the best link we have to conciousness. It's our vehical in this world. Take care of it.
+
+Food fuels you. Sleep restores you. Stress destroys you.
+
+Don't be fat, stressed, or sleep deprived.
+
+Do basic maintaince on youself.
+
+Lift heavy ass weights. Run regularly.
+
+Be consistent and persistent. It's consistency that will deliver you, not intensity.
 
 ## More Details
 
@@ -12,5 +22,22 @@ Your body is a tool. Maintain it and keep it sharp. Expect a few dings along the
 
 #### Am I in trouble?
 
+* Are you obese or overweight?
+
+* Do you sleep at least 7 hours a day?
+
+* Are you cronically stressed? 
+
+* Are you cronically sick?
+
 #### How to correct?
 
+##### Overweight
+
+##### Sleep deprivation
+
+##### Stress
+
+##### Sick
+
+### Scheduling Tips
