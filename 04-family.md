@@ -30,4 +30,11 @@ Grace
 
 Scheudle time together.
 
+* Give your family dedicated time every day (2-3 hours min)
+* When you are on family time, make them a priority: Play with your kids, talk to your wife, put away your MFn phone.
+* Do no bring the hardships of work to home
+* Eat together
+* Work together on fun things and boring things.
 
+* Communicate with your family how to get things from you: time, attention, etc
+* Also communicate when you have to do other things like work

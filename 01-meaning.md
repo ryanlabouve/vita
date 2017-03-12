@@ -40,3 +40,36 @@ Here's what I started with:
 
 I'm unconvinced on the importance of this. But I recognize that it could be important?
 
+### Faith
+
+In the prologue of my book I make it clear that this is a book to my kids. So I am including personal things about my faith. 
+
+#### Why am I a Cristian?
+
+#### How can I be a Christian?
+
+You can't be Christian without being like Christ.
+
+Seek Christ by reading the bible every day, even just 2 chapters. 
+
+Pray every day. Talk to Jesus. He listens. He responds.
+
+Worship him constatly, thru service and song.
+
+Memorize the scripture
+
+Actively practice being like Christ.
+
+Even when it's scary, even when it's strange, center your life around the truth of God.
+
+Be a witness to what he's done, especially in your life.
+
+Love is everything. Love God. Love your neighbors. Love recklesly.  
+
+~*~*~*~
+
+Let me boil this down:
+* [ ] Read / listen to 4 chapters a day (10-15 minutes)
+* [ ] Pray 2 times a day (10 minutes)
+* [ ] Meditate or worship though 2 songs (10 minute)
+
